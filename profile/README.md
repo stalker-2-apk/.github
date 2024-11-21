@@ -3,7 +3,7 @@ The highly anticipated Stalker 2: Heart of Chornobyl is finally here, captivatin
 
 ## Download Free: [Stalker 2 Poppy Field](https://bit.ly/48ZWEFf)
 
-**Bergabunglah dengan Komunitas Gamemodfree Untuk memperbarui game terbaru setiap hari: [Di ​​Sini](https://t.me/gamemodfreecom)**
+**Join Gamemodfree Community To update the latest games every day: [Here](https://t.me/gamemodfreecom)**
 
 This guide provides a detailed walkthrough on downloading, installing, and enjoying the official version of Stalker 2: Poppy Field (2024). Whether you’re a long-time fan of the series or a newcomer to the Zone, this article will cover everything you need to know.
 
