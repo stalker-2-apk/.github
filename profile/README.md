@@ -42,7 +42,7 @@ GPU: NVIDIA GeForce GTX 1660 or AMD Radeon RX 590.
 RAM: 8GB (minimum); 16GB recommended.
 Storage: 150GB free space.
 Step 2: Visit a Trusted Source for Free Downloads
-Open your browser and navigate to www.gamemodfree.com, a reliable platform for free game downloads.
+Open your browser and navigate to gamemodfree, a reliable platform for free game downloads.
 Use the search bar to find Stalker 2: Poppy Field Official Version 2024.
 Step 3: Download the Game Files
 Click on the provided download link for the installer.
